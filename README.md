@@ -1,1 +1,1 @@
-# CS477-PGP Team 2
+# CS477-PGP Galactic Survivor
